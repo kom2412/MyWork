@@ -32,3 +32,6 @@
 
 >>>>![Масло моторное](/motor_oil.jpg)
 
+>>>>>_Новый масляный фильтр_
+
+>>>>>![Новый масляный фильтр](https://quto.ru/thumb/1500x0/filters:quality(75):no_upscale()/imgs/2021/08/20/13/4839040/724c2f26cc8eba28c5bc79d804d27db10a163136.jpg)
