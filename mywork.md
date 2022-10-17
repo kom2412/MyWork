@@ -32,6 +32,5 @@
 
 >>>>![Масло моторное](/motor_oil.jpg)
 
->>>>>Новый масляный фильтр.
 
->>>>>>![Новый масляный фильтр](https://image.made-in-china.com/43f34j00cTJUebjIMZkF/Well-Known-for-Its-Fine-Quality-90915-Yzzj4-Fit-for-Land-Cruiser-Fzj100-New-Oil-Filter.jpg)
+>>>>>![Новый масляный фильтр](https://ir.ozone.ru/s3/multimedia-4/c1000/6055644700.jpg)
