@@ -32,3 +32,6 @@
 
 >>>>![Масло моторное](/motor_oil.jpg)
 
+>>>>>**Новый масляный фильтр**
+
+>>>>>![Новый масляный фильтр](https://webpulse.imgsmail.ru/imgpreview?mb=webpulse&key=pulse_cabinet-image-c8170348-89ec-48a1-b8df-54e591713834&fu=1&kr=1&h=422&w=630)
